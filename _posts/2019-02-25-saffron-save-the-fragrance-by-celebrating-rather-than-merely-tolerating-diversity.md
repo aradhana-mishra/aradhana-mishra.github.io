@@ -1,0 +1,55 @@
+---
+layout: post
+title: Saffron: Save the 'fragrance' by celebrating, rather than merely tolerating diversity!
+date: 2019-02-25 15:47
+author: aradhanamishra
+comments: true
+categories: [Children, Drass, kargil, Kashmir, meadows, Politics, Saffron, Tiger Hill, Travelogue]
+---
+<!-- wp:paragraph -->
+<p>Summer of 2011 that was! The meadows dotted with the wild yellow-white flowers, starting from the side of the sparkling and exulting Drass river by the road and ascending to those tiny hamlets which had scattered houses of stones and wood, with sloping roofs, would beckon to me with much earnestness. And I wouldn’t disappoint it. I would put my walking shoes on and set about to explore a new route that these meadows hid, sometimes with a tiny grove of poplar trees and sometimes with barley fields- staple diet in these regions. I would reach the road and cross the iron bridge, with the roaring wind as my only companion. Sometimes though, when the wind had a bit of subdued existence, I would take my ten-year-old son too, to these excursions, much to the chagrin of my husband, who would be perpetually anxious about our safety, given the nature of the place. The weather in these areas is not quite friendly or so to say and added to that was the supposed tension which had lingered on in the environment since the ‘Kargil War’. But to me, it was an opportunity to see and experience the part of OUR country which not many get a chance to- to know the second coldest inhabited place in the world ( In the freezing winter, temperatures in Drass can drop to as low as -45 degrees Celsius), and its people, to walk on the very road (NH1) which the enemies had tried to destroy but eventually failed, to experience a surrounding which was both intimidating and engaging at the same time.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"id":865,"align":"center","width":507,"height":380} -->
+<div class="wp-block-image"><figure class="aligncenter is-resized"><img src="http://www.aradhanamishra.com/wp-content/uploads/2019/02/river-drass-1.jpg" alt="" class="wp-image-865" width="507" height="380"/><figcaption> <br>The curvaceous and enticing Drass river, as seen from further up in the hills! </figcaption></figure></div>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>While the rambunctious wind (especially in the evenings) coerced one to stay indoors, the exquisiteness of natural beauty, of greens growing over the brown beds and the crooning river cajoled one to come out and engage in the rendezvous with it. Like a beloved, nature would stretch its hands to hold yours to take you to a journey hitherto unknown to you, and never <g class="gr_ gr_63 gr-alert gr_gramm gr_inline_cards gr_run_anim Grammar multiReplace" id="63" data-gr-id="63">being</g> the one to resist such a temptation, I would find myself wandering on those pastures. Sometimes deviating to take note of a flower or foliage which looked different, sometimes to talk to the elders on a village road, if I crossed them and sometimes to interact with the group of children filling their water cans outside the village or playing on the street . </p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"id":866,"align":"center","width":504,"height":378} -->
+<div class="wp-block-image"><figure class="aligncenter is-resized"><img src="http://www.aradhanamishra.com/wp-content/uploads/2019/02/my-excursion-1.jpg" alt="" class="wp-image-866" width="504" height="378"/><figcaption>up in the hills!</figcaption></figure></div>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>Especially the innocence of children tugged at my heartstrings.&nbsp; Their unsullied laughter, pink cheeks and eagerness to answer my queries pertaining to their school, village, friends would make me want to reach to them every single day, till I stayed in that town. These children seemed to be an extension of the very nature! Nothing could have felt more blissful. It was a world distinctly different than the one I had known. A world that felt so complete. It felt like ‘hope’ traversed amongst them with much gaiety and kept them happy even in such rigorous setup. This town, this gateway to Ladakh, only about sixty kilometres away from the picturesque Sonamarg, could very well be the gateway to happiness, purity.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"id":855,"align":"center","width":524,"height":393} -->
+<div class="wp-block-image"><figure class="aligncenter is-resized"><img src="http://www.aradhanamishra.com/wp-content/uploads/2019/02/children-drass-2.jpg" alt="" class="wp-image-855" width="524" height="393"/><figcaption>Children .. an extension of the very nature..unsullied, pure<br></figcaption></figure></div>
+<!-- /wp:image -->
+
+<!-- wp:image {"id":856,"align":"center","width":535,"height":401} -->
+<div class="wp-block-image"><figure class="aligncenter is-resized"><img src="http://www.aradhanamishra.com/wp-content/uploads/2019/02/sheep-1.jpg" alt="" class="wp-image-856" width="535" height="401"/><figcaption>The pastures!</figcaption></figure></div>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>On one such walk, I came across a happy sort of hurly-burly in front of a house in the village, on the other side of the hill. On enquiring, I was told that they were preparing to welcome the new bride, who was to come the next day. Driven by my desire to know their customs, I almost invited myself for the function, which was accepted with much alacrity, warmth and happiness. “<g class="gr_ gr_31 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling ins-del multiReplace" id="31" data-gr-id="31">Hamein</g> <g class="gr_ gr_33 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling" id="33" data-gr-id="33">bahaut</g> <g class="gr_ gr_28 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling ins-del multiReplace" id="28" data-gr-id="28">khushi</g> <g class="gr_ gr_34 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling" id="34" data-gr-id="34">hogi</g>, agar <g class="gr_ gr_32 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling ins-del multiReplace" id="32" data-gr-id="32">aap</g> Dulhan <g class="gr_ gr_35 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling" id="35" data-gr-id="35">se</g> <g class="gr_ gr_29 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling ins-del multiReplace" id="29" data-gr-id="29">milne</g> <g class="gr_ gr_36 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling" id="36" data-gr-id="36">aayengi</g> (We shall be truly happy to have you over),” spoke one overwhelmed voice. He was the groom’s grandfather. Next day, at my usual time, I set off for the village with the token gift for the bride. Upon reaching, I was ushered inside the home with much reverence and subsequently to a room. The house was bustling with the happy chaos- of children laughing, running about, men talking and women generally being around, busy with celebratory chores.&nbsp; The room that I was led into, had carpet all over, not of much quality as such, but to serve the purpose to keep the room warm. On the sides, by the wall,  mattresses had been spread for the people to sit. I didn’t know a single soul there. “Dulhan <g class="gr_ gr_30 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling ins-del multiReplace" id="30" data-gr-id="30">abhi</g> <g class="gr_ gr_37 gr-alert gr_spell gr_inline_cards gr_run_anim ContextualSpelling" id="37" data-gr-id="37">aayegi</g> (The bride shall come soon), said an old man with gentle eyes and flowy white beard. “what will you have,” he asked me in the gentlest voice possible. “Tea shall do”, I didn’t want to disappoint my host “So you stay in the town, in one of those camps,” he asked again and I confirmed. &nbsp;With all these niceties, two hours had gone by. As if he read my anxiety, “Actually she is getting ready in all her Kashmiri finery and that’s taking time,” I smiled. &nbsp;Maybe I should have listened to my husband and got someone along. I realised, I hadn’t really told my husband where I was going to, for I hadn’t thought that it would take this long. I looked around, there were people- believers of faith which <g class="gr_ gr_441 gr-alert gr_gramm gr_inline_cards gr_run_anim Grammar multiReplace" id="441" data-gr-id="441">was</g> not mine and not far from the grounds where ‘unfortunate events’ happened frequently. A thin dark cloud wrapped my mind- “Adaab,” a sweet girly voice greeted me, disseminating those clouds at that very instant. I looked up. I was seeing the prettiest bride in full Kashmiri attire. Her kin made her sit near me. &nbsp;Surrounded by the members of her matrimonial home and perhaps keeping with the tradition, she wasn’t speaking much. I handed over the gift to her, which she accepted gladly. Thanking my host I started back for my abode after a while. I knew I had to do a lot of explaining once back. </p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>And as expected, my husband was at the gate, waiting anxiously, “where had you been, I was so worried, why didn’t you take someone with you if I was busy? What if…” I understood what he wanted to say. “Yes, I should have taken someone with me. I got quite late. At least he could have come back and informed you about it. For your other ‘fears’, I would say that was not required. I was with my fellow countrymen,” I looked at the TIGER HILL overlooking the highway.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>After all those years, I wonder what those children would have grown into, what they must be doing now? Certainly, I can’t place them in the crowd of stone-pelters and amongst people who are not ‘my countrymen’ in spirit. But I can’t help thinking about those children either who are amongst them, who too, must have been innocent kids at one point of time, growing in the valley of saffron. Neither can I stop thinking about people who must have been children when they were made to leave their beloved homes and are living now as refugees in other parts of the country with just a faint memory of their childhood! How and when did the ‘saffron’ turn into poison, I wouldn’t know…I wouldn’t know who is right, who is wrong, but I surely know that the loss of childhood and its innocence is the heaviest collateral damage that’s taking place in a conflict that’s not their calling. The ‘leaders’ then and ‘leaders’ now, of various hues and outfits, are leading them to a future without hope. I suppose it’s time, the ‘commoners’ take charge of their own future, in Kashmir and outside it.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>To begin with, let's be human - not a fighter, not a stone-pelter, not a soldier, not an anarchist, not a war fanatic, not a war repugnant! We as Indians must act true to its civilizational genius for accepting and celebrating, rather than merely tolerating diversity. Perhaps then we can protect the ‘fragrance of the saffron’! </p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>Copyright © Aradhana Mishra</p>
+<!-- /wp:paragraph -->
