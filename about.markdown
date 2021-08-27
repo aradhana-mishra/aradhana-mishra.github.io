@@ -4,15 +4,12 @@ title: About
 permalink: /about/
 ---
 
-This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
+Hello ! This is Aradhana Mishra . A Masters in Mass Communication , I am an avid reader and words simply mean the world to me and hence the title of my site- ‘Winged Words’! I wander to places-imaginative and real with words.
 
-You can find the source code for Minima at GitHub:
-[jekyll][jekyll-organization] /
-[minima](https://github.com/jekyll/minima)
+Have done some work with Hindustan Times as well as TOI as a special feature writer. Now, however, succumbing to the power of internet and with the idea of reaching out to more people, I have started this website.
 
-You can find the source code for Jekyll at GitHub:
-[jekyll][jekyll-organization] /
-[jekyll](https://github.com/jekyll/jekyll)
+I love to express myself poetically sometimes and at other, find myself more at ease with the prose form. Equally passionate about politics and and other issues which deal with our very existence in a just society, you shall find a lot of blogs written with a strong opinion. And yeah, if u love travelling, u may find some nuggets here. now there- didn’t I tell you it’s about ‘a bit of everything’!!!!!!!!
 
+So, please keep visiting my page and keep having your dose for the day !
 
-[jekyll-organization]: https://github.com/jekyll
+PS - This site n your bond with it will develop simultaneously! Whatsay!
