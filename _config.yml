@@ -28,7 +28,7 @@ twitter_username: aradhanashash
 github_username:  aradhana-mishra
 
 # Build settings
-theme: jekyll-theme-cayman
+theme: minima
 plugins:
   - jekyll-feed
 
